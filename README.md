@@ -1,6 +1,6 @@
 
 
-![rsDownload NewTestament_Motherboard_300x300](https://github.com/user-attachments/assets/60055bc1-993b-4ab6-833d-1068bab79852)
+![rsDownload NewTestament_Motherboard_300x300](https://github.com/user-attachments/assets/110c69b0-1ec5-4de5-9d75-a7457ec2c36b)
 
 
 Hi, I'm Tom Pikula
