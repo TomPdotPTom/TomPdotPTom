@@ -1,6 +1,9 @@
 
 
-# 👋 Hi, I'm Tom Pikula
+![rsDownload NewTestament_Motherboard_300x300](https://github.com/user-attachments/assets/60055bc1-993b-4ab6-833d-1068bab79852)
+
+
+Hi, I'm Tom Pikula
 
 ![Tom's Banner](./banner.gif)
 
